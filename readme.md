@@ -1,4 +1,4 @@
-   Em meio a agitação da vida de um aluno , o Angelo Gabriel , um estudante do terceiro ano do ensino médio do IFTO Campus Araguaína, que visa equilibrar sua vida de 
+   Em meio a agitação da vida de um aluno , o Angelo Gabriel , um estudante do terceiro ano do ensino médio do IFTO do tocantins, que visa equilibrar sua vida de 
 estudante e ao mesmo tempo na sua vida pessoal tendo diversos hobs como andar de bicicleta, escutar música e se dedicar em tempo de qualidade com as pessoas que
 ele o mais ama e ao mesmo tempo tentando ter uma vida mais próxima com Deus. Além disso, ele estuda em tempo integral e passa a maior parte do dia imerso em livros, 
 cadernos, computadores, slides, trabalhos, atividades e com as pessoas em que ele já considera como parte da sua família.
